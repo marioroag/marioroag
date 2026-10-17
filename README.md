@@ -1,4 +1,4 @@
-# Hola, soy Mario Rodríguez 👋
+# Hola, soy Mario 👋
 
 ### Desarrollador web en formación, curioso por naturaleza y siempre construyendo algo.
 
