@@ -20,4 +20,4 @@ Actualmente estudio **Desarrollo de Aplicaciones Web** en [Escuela Arte Granada]
 
 Si crees que puedo encajar en tu equipo o tienes una idea en la que podríamos trabajar juntos, **hablemos**.
 
-[Portfolio](https://tu-portfolio.com) · [LinkedIn](https://www.linkedin.com/in/tu-usuario/) · [Correo](mailto:tu@email.com)
+[Portfolio](https://marioroag.com) · [LinkedIn](https://www.linkedin.com/in/mariorodriguezaguado/) · [Correo](mailto:mario.rodriguez.aguado@gmail.com)
